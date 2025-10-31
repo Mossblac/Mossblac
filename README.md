@@ -5,6 +5,6 @@
 - ⚡ Fun fact: I'm a former Arcade Repair Technician with over ten years of management and training experience.
 - 💬 Ask me about my Rally Boards!
 
-- yuu can find out more @ www.linkedin.com/in/mossblac-murphy
+- you can reach me @ www.linkedin.com/in/mossblac-murphy
 
 
